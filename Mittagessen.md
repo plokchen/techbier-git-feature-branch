@@ -1,4 +1,4 @@
-Voressen & Stocki
+Voressen und Stocki
 ===
 
 # Zubereitung
